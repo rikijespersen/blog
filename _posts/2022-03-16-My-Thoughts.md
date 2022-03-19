@@ -12,7 +12,7 @@ Recently, my therapist has suggested that I start something to document my thoug
 
 I've been having these weird thoughts lately. Sudden flashes of instrusive ideas. Yet, when I try to recall them, I remember nothing. I wonder if any of this real? Or not? 
 
-I used to have such a good idea of how my life would go, I used to have big asperations. At Harvard I was confident, outgoing, and hopeful for my future. But for some strange reason, I find it hard to maintain that personality. Now everything that I do is an attempt to suppress this darkness eating away at me. It is omnipresent in my life, ever since that accident. I don't even know what happened, but I do know that people started looking at me with a hint of fear in their eyes ever since. 
+I used to have such a good idea of how my life would go, I used to have big aspirations. At Harvard I was confident, outgoing, and hopeful for my future. But for some strange reason, I find it hard to maintain that personality. Now everything that I do is an attempt to suppress this darkness eating away at me. It is omnipresent in my life, ever since that accident. I don't even know what happened, but I do know that people started looking at me with a hint of fear in their eyes ever since. 
 I can't even tell if the thoughts I am having are actually me anymore or if my mind has already been corrupted by it. I feel as though I am starting to lose control over my own thoughts and I fear the worst.
 
 ### Entry 3: Feb 2
